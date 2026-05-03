@@ -1,1 +1,0 @@
-# cantikku-tersayang
